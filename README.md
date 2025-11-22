@@ -1,0 +1,1 @@
+# 132talik_test_savollari
